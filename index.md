@@ -2,4 +2,4 @@
 
 **Privet**
 
-![Say hi to swinka](https://github.com/juliya-z/swinka/blob/master/swinka.jpg)
+![swinka](https://github.com/juliya-z/swinka/blob/master/swinka.jpg)
