@@ -2,4 +2,5 @@
 
 **Privet**
 
+![swinka](https://pp.vk.me/c626930/v626930942/3a94c/3wLGVLFzmaE.jpg)
 ![swinka](https://github.com/juliya-z/swinka/blob/master/swinka.jpg)
